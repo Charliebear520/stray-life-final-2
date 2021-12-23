@@ -1,1 +1,0 @@
-# stray-life-final-2
